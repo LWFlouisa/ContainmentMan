@@ -4,7 +4,7 @@ title: "Containment Man: Last Stand Of The Amanaza"
 permalink: /shortstory
 ---
 # Containment Man: Last Stand Of The Amanaza
-	During the interwar years, both French speaking and Japanese regions were completely obliterated during the bombing raids by French and Japanese loyalists, which caused the majority of the damage to New York and San Fransisco Bay area, with minor outlying territories being initial safe havens for the Amanaza. It was quite a sight for onlookers on the beach to observe Japanese vessle patroling the open sea for French infantry men, both of whom had previously been allies before the dissolving of the US government.
+During the interwar years, both French speaking and Japanese regions were completely obliterated during the bombing raids by French and Japanese loyalists, which caused the majority of the damage to New York and San Fransisco Bay area, with minor outlying territories being initial safe havens for the Amanaza. It was quite a sight for onlookers on the beach to observe Japanese vessle patroling the open sea for French infantry men, both of whom had previously been allies before the dissolving of the US government.
 
 Initially the people that offered to help drive off the occupying Japanese and French forces, had themselves aided in the French incursion into Mexico, and the Japanese bombardment of San Francisco Bay during world war II, but went into hiding during the later cold war years, only finally emerging after Antifa and Proud Boys were a thing of the past. Many people whom were part of Antifa would later apply their skills in the Amanaza as a decentralized militia.
 
