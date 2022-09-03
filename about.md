@@ -11,6 +11,6 @@ Containment Man: Last Stand Of The Amanaza, is a post-apocalyptic one shot about
 
 # About the Author
 
-Curabitur auctor nulla eros, et placerat sapien auctor eget. Duis sed enim est. Vivamus sapien lectus, venenatis nec sapien eget, pharetra consectetur lorem. Nunc nec purus suscipit, suscipit diam non, malesuada lorem.
+Writer of "Sanguemance", a cyberpunk subset of Vampire romance.
 
 {% include authorsocialmedia.html %}
